@@ -18,7 +18,7 @@ Genetic advantages/disadvantages shows up in  extremes : highly competitive fiel
 stay at the top (Sports, for example NBA). 
 
 Also another related field is Cognitive and Developmental Psychology. Where they do research on kids with developmental and social difficulties. One of the top guys who had been pushing to look at genetic effects is Steven Pinker. 
-He talks about the politics of the issue as well. (Book :- Black Slate : Steven Pinker). This is the politics that I was refering to!
+He talks about the politics of the issue as well. (Book :- Blank Slate : Steven Pinker). This is the politics that I was refering to!
 
 https://www.youtube.com/watch?v=6A_6yR00pHA
 
