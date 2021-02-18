@@ -31,7 +31,7 @@ And people accept it: Personally, I think it is a crude form of appeal to author
 People give them credibility because of their expertise in another field (he is smart so he should know better). 
 Many philosophers had been talking against it for decades...!
 
- I skipped reading his book before, because from his lectures it sounded more closer to higher form of [behaviorism](https://en.wikipedia.org/wiki/Behaviorism) for me. 
+ I skipped reading his book before, because from his lectures it sounded more closer to higher form of [behaviorism](https://en.wikipedia.org/wiki/Behaviorism) for me. Context: Behaviorism was known to be not ideal to represent human behavior thru failures in creating AGI with conscience by Computer Scientist.
  In any case I read a summary of that book online since you mentioned it…Here is two things I found…
 
 1. Over the last 200 years, science has increasingly revealed that human behavior is determined by hormones, genes, and neurological synapses. 
@@ -44,8 +44,8 @@ This is much more than just epigenetics. Why genetic engineering is needed if nu
 Will read his book sometime….
 
 Also, I would think he has to support genetic effects for his sexual orientation...!. 
-It is considered/debated that orientation is due to genetics. If anyone says otherwise... well 
-then you are gonna get …..SKRWD real bad!. It is illegal to change that thru therapy..!
+It is considered that orientation is due to genetics. If anyone says otherwise... well 
+then you are gonna get …..SKRWD real bad!. It is illegal to change that thru therapy as well..!
 
 I came to know about some of these things as my wife did MS(Psychology) in US and heard a lot about the politics behind things like this...
 
