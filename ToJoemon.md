@@ -29,7 +29,7 @@ https://www.youtube.com/watch?v=6A_6yR00pHA
 
 Please do give references to the experts in genetics rather than experts in some other fields. 
 Should we read a book on mechanical engineering for brain surgery, yes of course there is some mechanics in brain surgery.
-Yuval Harari is a historian and I am not sure how much he can offer on genetics. 
+ Harari is a historian and I am not sure how much he can offer on genetics. 
 This is a common problem in debating contentious issues: Eg, Takes Phd in physics and then comments on Ethics. 
 And people accept it: Personally, I think it is a crude form of appeal to authority. 
 People give them credibility because of their expertise in another field (he is smart so he should know better). 
@@ -47,7 +47,7 @@ I couldn’t find in the summary anything related to genes other than things in 
 This is much more than just epigenetics. Why genetic engineering is needed if nurture is good enough?. 
 Will read his book sometime….
 
-Also, I would think he has to support genetic effects for his sexual orientation...!. 
+Also, I would think he has to support genetic effects for his  orientation...!. 
 It is considered that orientation is due to genetics. If anyone says otherwise... well 
 then you are gonna get …..SKRWD real bad!. It is illegal to change that thru therapy as well..!
 
