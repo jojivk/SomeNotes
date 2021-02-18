@@ -15,7 +15,11 @@ The point here is epigenetics says your gene matters and at the same time it can
 If gene had not effect, then there is no need to try to change it right.
 
 Genetic advantages/disadvantages shows up in  extremes : highly competitive fields with limited span to reach and 
-stay at the top (Sports, for example NBA). 
+stay at the top (Sports, for example NBA). These are contraversial topics and people can then discriminate based on that.
+
+https://medlineplus.gov/genetics/understanding/traits/athleticperformance/#:~:text=The%20best%2Dstudied%20genes%20associated,linked%20to%20strength%20and%20endurance.&text=A%20variation%20in%20the%20ACE,alters%20activity%20of%20the%20gene.
+
+https://www.verywellfit.com/how-genetics-influence-athletic-ability-3120100
 
 Also another related field is Cognitive and Developmental Psychology. Where they do research on kids with developmental and social difficulties. One of the top guys who had been pushing to look at genetic effects is Steven Pinker. 
 He talks about the politics of the issue as well. (Book :- Blank Slate : Steven Pinker). This is the politics that I was refering to!
