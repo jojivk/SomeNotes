@@ -12,7 +12,7 @@ There are debates on how much epigenetics can help as well.
 https://www.sciencedirect.com/science/article/pii/S1877117318300218
 
 The point here is epigenetics says your gene matters and at the same time it can be changed (to some extend) by doing the things that helps.
-If gene had not effect, then there is no need to try to change it.
+If gene had not effect, then there is no need to try to change it right.
 
 Genetic advantages/disadvantages shows up in  extremes : highly competitive fields with limited span to reach and 
 stay at the top (Sports, for example NBA). 
