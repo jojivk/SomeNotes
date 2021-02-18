@@ -51,5 +51,4 @@ Also, I would think he has to support genetic effects for his  orientation...!.
 It is considered that orientation is due to genetics. If anyone says otherwise... well 
 then you are gonna get …..SKRWD real bad!. It is illegal to change that thru therapy as well..!
 
-I came to know about some of these things as my wife did MS(Psychology) in US and heard a lot about the politics behind things like this...
 
